@@ -1,4 +1,4 @@
-![hippo](https://img.sanishtech.com/u/3b1161cf1ece0b30b48289b0873bee5f.gif)
+![](https://cdn.phototourl.com/free/2026-05-12-fb677425-2dce-4246-9b1d-ebdfbce09bb9.jpg)
 
 `Hey i'm aver, to know more about me, read my strawpage! Dont copy my ponies ty`
 
