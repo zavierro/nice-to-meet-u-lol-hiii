@@ -1,8 +1,7 @@
 ![](https://cdn.phototourl.com/free/2026-05-12-fb677425-2dce-4246-9b1d-ebdfbce09bb9.jpg)
 
-`Hey i'm aver, to know more about me, read my strawpage! Dont copy my ponies, DNI: Racist, Ageplayer, Toxic, Proshipper.`
+𝘏𝘦𝘺 𝘪'𝘮 𝘢𝘷𝘦𝘳, 𝘵𝘰 𝘬𝘯𝘰𝘸 𝘮𝘰𝘳𝘦 𝘢𝘣𝘰𝘶𝘵 𝘮𝘦, 𝘳𝘦𝘢𝘥 𝘮𝘺 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦, 𝘥𝘰𝘯𝘵 𝘤𝘰𝘱𝘺 𝘮𝘺 𝘱𝘰𝘯𝘪𝘦𝘴.
 
-------------------
+𝘋𝘕𝘐: 𝘙𝘢𝘤𝘪𝘴𝘵, 𝘈𝘨𝘦𝘱𝘭𝘢𝘺𝘦𝘳, 𝘛𝘰𝘹𝘪𝘤, 𝘗𝘳𝘰𝘴𝘩𝘪𝘱𝘱𝘦𝘳.
 
-![](https://cdn.phototourl.com/free/2026-05-10-7d811067-d848-45bb-9097-f59fc9cbdc26.png)
- `(art made by me)`
+----------
